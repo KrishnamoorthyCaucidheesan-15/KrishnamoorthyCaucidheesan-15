@@ -1,4 +1,4 @@
-![never-ever-give-up-vector-illustration-decorative-design-185161020](https://user-images.githubusercontent.com/78297372/225445194-a3bfc88e-ad46-42bd-beac-a6d2d6071eaa.jpg)
+![Data-Science-vs -Big-Data-vs](https://github.com/KrishnamoorthyCaucidheesan-15/KrishnamoorthyCaucidheesan-15/assets/78297372/07e25bcf-5838-4e3f-bdc2-f7fd93a02559)
 ### Hi there 👋 I'm Krishnamoorthy Caucidheesan
 Computer Science Undergraduate
 
